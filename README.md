@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Akash Krishna SS
+# 👋 Hi there, I'm Akash Krishna S S
 
 Welcome to my GitHub profile!
 
